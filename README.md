@@ -1,2 +1,0 @@
-# SOUMIKsPortfolio
-MY Portfolio
